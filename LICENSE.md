@@ -1,4 +1,4 @@
-#  
+#  minecraft rare Scripts offers the most advanced minecraft Script, with speed and auto-farm. Perfect for dominating any match.
 
 
 
